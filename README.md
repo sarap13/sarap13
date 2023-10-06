@@ -22,4 +22,4 @@ My goal is to become a highly skilled developer and contribute to the exciting w
 ### Contact
 
 - ✉️ You can reach me via [my email](saraparra13@gmail.com).
-- LinkdIn: www.linkedin.com/in/saraparradelpino
+- Linkedin: www.linkedin.com/in/saraparradelpino
